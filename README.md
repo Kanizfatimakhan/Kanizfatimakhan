@@ -1,5 +1,5 @@
 # 💫 Hi 👋, Kaniz Fatima Khan
-**A passionate Cloud Engineer || DevOps Engineer || Kafka Admin from India**
+
 
 Email Me 👉 ✉️ **kanizfatma100100@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
